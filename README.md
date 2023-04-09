@@ -1,0 +1,1 @@
+# Fool-s-gold-static-webpage
